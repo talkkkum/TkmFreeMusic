@@ -40,7 +40,7 @@ And That's all.
 
 YouTube: https://www.youtube.com/channel/UC5vWeOTwtODZ0uAMU9FFGqA/
 
-Bilibili：space.bilibili.com/19811913 
+Bilibili：https://space.bilibili.com/19811913 
 
 还有，如果有可能的话，我希望你也能使用CC-BY协议，造福更多被版权束缚的内容创作者。
 
